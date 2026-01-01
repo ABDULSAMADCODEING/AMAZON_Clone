@@ -1,0 +1,2 @@
+# AMAZON_Clone
+👉MADE BY ABDUL SAMAD ABDULLAH💻
